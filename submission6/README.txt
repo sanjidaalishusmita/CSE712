@@ -55,9 +55,13 @@ https://bucse712fall2021.slack.com/archives/C02GE7F3YSZ/p1642590133055200
 https://bucse712fall2021.slack.com/archives/C02GE7F3YSZ/p1642590155055500
 https://bucse712fall2021.slack.com/archives/C02GE7F3YSZ/p1642590177055700
 https://bucse712fall2021.slack.com/archives/C02GE7F3YSZ/p1642590225056000
-
-
-
+https://bucse712fall2021.slack.com/archives/C02GE7F3YSZ/p1642591483056300
+https://bucse712fall2021.slack.com/archives/C02GE7F3YSZ/p1642591506056500
+https://bucse712fall2021.slack.com/archives/C02GE7F3YSZ/p1642591526056700
+https://bucse712fall2021.slack.com/archives/C02GE7F3YSZ/p1642591553057000
+https://bucse712fall2021.slack.com/archives/C02GE7F3YSZ/p1642591572057300
+https://bucse712fall2021.slack.com/archives/C02GE7F3YSZ/p1642591595057500
+https://bucse712fall2021.slack.com/archives/C02GE7F3YSZ/p1642591618057700
 
 
 
